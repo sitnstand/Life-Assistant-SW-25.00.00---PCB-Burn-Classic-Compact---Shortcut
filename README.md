@@ -1,0 +1,1 @@
+# Life-Assistant-SW-25.00.00---PCB-Burn-Classic-Compact---Shortcut
